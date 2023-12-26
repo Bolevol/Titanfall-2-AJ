@@ -16,9 +16,9 @@
 
 ![2](https://github.com/Bolevol/Titanfall-2-AJ/assets/154917713/c83df350-fc6c-460d-8b7b-1edbd58e5635)
 
-![3](https://github.com/Bolevol/Titanfall-2-AJ/assets/154917713/9f341e73-807a-4d3f-9675-4b2defdea1ce)
-
 # ⚙️𝐅𝐮𝐧𝐜𝐭𝐢𝐨𝐧𝐬
+
+![3](https://github.com/Bolevol/Titanfall-2-AJ/assets/154917713/9f341e73-807a-4d3f-9675-4b2defdea1ce)
 
 ***🌟ＨＷＩＤ Ｃｈａｎｇｅｒ ＩＮＣＬＵＤＥＤ!***
 
